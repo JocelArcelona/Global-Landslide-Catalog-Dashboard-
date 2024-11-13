@@ -11,4 +11,4 @@ For more info regarding the metadata and original update source: https://catalog
 ## Land is sliding, tell NASA where!
 https://www.tumblr.com/nasa/177022978844/land-is-sliding-tell-us-where
 
-![Landslide GIF](https://example.com/yourgif.gif)
+![Landslide GIF](https://akm-img-a-in.tosshub.com/indiatoday/2024-07/wayanad%20landslide.gif?VersionId=bWarREOY0x1QAQHfLbMnRAR.mMO8Ph4k)
